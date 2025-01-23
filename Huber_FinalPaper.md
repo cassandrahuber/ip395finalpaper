@@ -1,4 +1,5 @@
 Linguistic Imperialism and the Filipino Identity
+
         	In a world where colonization and imperialization of other nations have been used to show a country’s success and superiority, it is unsurprising that this mindset has left a lasting impact on many countries and their cultures. Particularly, the Philippines exemplifies these impacts to this day as seen in the effects of linguistic imperialism on the identity of Filipinos and Filipino Americans. This topic is significant to me as a Filipino American with friends who also share feelings that English has affected our identities. Through my research, I plan to understand more on Filipino linguistic imperialism, focusing primarily on English.
 
 When looking at the impact of English on Filipino identity, it is crucial to understand the
